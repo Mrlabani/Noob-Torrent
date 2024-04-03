@@ -1,0 +1,2 @@
+# Noob-Torrent
+Owner :- @Labani 🍁
